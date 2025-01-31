@@ -1,2 +1,13 @@
-# st4rzb3t
-Starzbet Giriş Adresi
+<h1>Starzbet</h1>
+<p>En güvenilir Starzbet siteleri ile kazançlı oyunların keyfini çıkarın!</p>
+<a href="https://t2m.io/2284401" title="Starzbet Güncel Giriş">Starzbet Güncel Giriş</a>
+
+<a href="https://t2m.io/2284401">
+    <img src="https://i.ibb.co/gtF7ptH/photo-2025-01-13-14-27-16.jpg" alt="Starzbet Görseli" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
+</a>
+
+<h2><a href="https://t2m.io/2284401">Starzbet Giriş İçin Tıklayınız ✅</a></h2>
+<p>Sektörün en güvenilir sitelerinde şansınızı deneyin ve kazanın!</p>
+
+<h3>Starzbet - Starzbet - Starzbet</h3>
+<p>Hemen giriş yapın, oyun keyfini doruklarda yaşayın!</p>
